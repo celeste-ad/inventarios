@@ -5,7 +5,7 @@ Grupo de trabajo de inventarios
 ## Integrantes 
 
 - Francisco 
-- Celeste 
+- Celeste skymel.705@gmail.com  
 
 ![Los mejores datos](PESOS-ATOMICOS.jpg) 
 
